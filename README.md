@@ -1,0 +1,1 @@
+# simon-oppgave-stein-sakspapir
